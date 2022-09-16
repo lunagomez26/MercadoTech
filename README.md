@@ -4,4 +4,4 @@ Integrantes Equipo 7
 Marledis Arrieta
 Maria Paula Vargas
 Patricia Díaz
-Luna Gómez
+Luna Gómez :upside_down_face:
